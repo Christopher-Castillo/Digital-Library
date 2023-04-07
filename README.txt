@@ -1,1 +1,1 @@
-Hosted on Glitch:  
+Hosted on Glitch: https://glitch.com/~digilibrary
